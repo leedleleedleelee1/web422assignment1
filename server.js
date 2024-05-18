@@ -6,7 +6,7 @@
 * 
 *  https://www.senecapolytechnic.ca/about/policies/academic-integrity-policy.html
 * 
-*  Name: ______________________ Student ID: ______________ Date: ______________
+*  Name: ____Frank Fu__________________ Student ID: ____126609197__________ Date: _______May 17 2024_______
 *
 *  Published URL: ___________________________________________________________
 *
